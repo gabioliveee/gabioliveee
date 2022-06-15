@@ -1,4 +1,4 @@
-- 👋 oie, eu sou @gabioliveee
+- 😃 oieee eu sou gaby 
 - 👀 estou interessada no novo capitulo de spy x family
-- 🌱 atualmente estou aprendendo a criar um site na web 
-- 💞️ estou interesada em aprender a programar novas linguas
+- 😼 lee know utdd 😼
+- 😃 amante de gatos por sinal 😼
