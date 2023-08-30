@@ -1,4 +1,4 @@
 - 😃 oieee eu sou gaby 
-- 👀 estou interessada no novo capitulo de spy x family
+- 👀 estou interessada em chegar a esmeralda no lol 
 - 😼 lee know utdd 😼
 - 😃 amante de gatos por sinal 😼
